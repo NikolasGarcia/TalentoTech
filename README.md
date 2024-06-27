@@ -1,2 +1,0 @@
-# TalentoTech
-Talento Tech
